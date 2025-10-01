@@ -1,5 +1,5 @@
 
-## Bem-vindo(a) Vanderson Oliveira 😁
+## Bem-vindo(a)
 
  <div>
    <a href="https://github.com/vandersonoliveira562-png">
